@@ -1,16 +1,19 @@
-## Hi there 👋
+## Sửa Laptop 247
 
-<!--
-**sualaptop247/sualaptop247** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+[sualaptop247.vn](https://sualaptop247.vn/) chuyên cung cấp dịch vụ sửa chữa laptop, thay pin laptop, sạc laptop chính hãng. Liên hệ 0867.59.59.66
 
-Here are some ideas to get you started:
+Thông tin liên hệ
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Hotline: 0867.59.59.66
+
+Email: sualaptop247org@gmail.com
+
+Address: 1467A Đường 3 Tháng 2, Phường 16, Quận 11, Tp. HCM
+
+http://www.pinterest.com/sualaptop247hcm
+
+https://sualaptop247hcm.wordpress.com/
+
+https://www.youtube.com/channel/UCv1WDjKgs3CkmAB46oOITBw
+
+https://www.twitch.tv/sualaptop247
